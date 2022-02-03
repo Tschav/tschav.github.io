@@ -1,2 +1,4 @@
-<p>Ja da luegsch iz blöd hee. Hani haut glich öpis ufgschaute unger dere URL.</p>
-<p>Tomatesalat<p>
+<p>Hallo</p>
+<p>Bitte jede Tag es Schnitzelwasser trinke. Aber bitte beachte das me nid drbi sitzt.</p>
+<p>Mit Grüssen an Sie Herr Spasstin</p>
+<p>Marsli</p>
